@@ -4,4 +4,5 @@
 - There are coffee shops and restaurants around
 - Here is what I designed
 - link : https://qhe1vf.axshare.com/?id=ajfi4u&p=home
+- - You can download the word version to see more details about the design
 
